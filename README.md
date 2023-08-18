@@ -1,1 +1,1 @@
-### Oie! Eu sou a Amanda Ashley (A.Ash) 👋
+### Oie, eu sou a Amanda pode se achegar ^^ 
